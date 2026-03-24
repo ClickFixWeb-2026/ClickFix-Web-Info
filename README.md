@@ -2,7 +2,7 @@
 We help small businesses get more customers by building simple, high-converting websites.
 
 # TALK TO US:
-Contacts: +63 938 626 2630
+Contacts: +(63) 938 626 2630
 
 Email: clickfix.web.2026@gmail.com
 
